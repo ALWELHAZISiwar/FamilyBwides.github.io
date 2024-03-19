@@ -11,7 +11,7 @@ As an IT engineer, I navigate the digital realms, weaving intricate codes and al
 
 But life had other plans for me, as it often does. In the midst of my pursuit of career and freedom, I found myself sharing a rented house with a stranger. His name was Celesto Bwides, a man whose presence exuded both strength and vulnerability. He was handsome, with eyes as blue as the skies over Mt. Komorebi and hair kissed by the gentle rays of the sun.
 
-Celesto was a man of contradictions, brave yet broken, playful yet burdened by the weight of his past. At the tender age of 24, he pursued studies in management and business, his heart yearning for success amidst the chaos of life. And like me, he too sought solace in the digital realms, dreaming of becoming a renowned streamer, sharing his passion for gaming with the world.
+Celesto was a man of contradictions, brave yet broken, playful yet burdened by the weight of his past. At the tender age of 21, he pursued studies in management and business, his heart yearning for success amidst the chaos of life. And like me, he too sought solace in the digital realms, dreaming of becoming a renowned streamer, sharing his passion for gaming with the world.
 
 Together, we inhabited a world where dreams intertwined with reality, where the boundaries between strangers blurred amidst the shared pursuit of independence and happiness. Our house stood at the border of Wakabamori, a tranquil oasis nestled between the quiet residential charm of Wakaba and the bustling activity of its town center.
 
